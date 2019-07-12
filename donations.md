@@ -1,6 +1,7 @@
 ---
 layout: default
 title: Donations
+permalink: /donations/
 ---
 
 [Donate Unperishable And Canned Foods To CCAP](http://ccapwinc.org/1_5_more-info.html)

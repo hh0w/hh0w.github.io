@@ -5,6 +5,9 @@ layout: default
 Helping Hands of Winchester
 ===========================
 
+Weekly Newsletter
+-----------------
+
 What is HHOW all about?
 -----------------------
 

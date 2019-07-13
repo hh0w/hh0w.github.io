@@ -8,6 +8,8 @@ Helping Hands of Winchester
 [Weekly Newsletter](newsletter)
 -----------------
 
+[Schedules](/schedule)
+---------
 What is HHOW all about?
 -----------------------
 

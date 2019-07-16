@@ -7,9 +7,11 @@ permalink: /about/
 Meet Our Staff
 --------------
 
-Ella is our Manager. She handles the social media and sets dates for the meetings. 
+Ella is our Secretary and Manager. She handles the social media and sets dates for the meetings. 
 
 Sofia is our designer and Co-Manager. She creates the artwork that we need and she created the logo that we have. She also helps Ella make desisions for our organization.
+
+Alexis is our Vice Secretary. She helps Ella Manage the online sites and helps make sure that everything that needs to be done is done.
 
 Eva is our. 
 

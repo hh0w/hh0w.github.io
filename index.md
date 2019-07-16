@@ -11,6 +11,15 @@ Helping Hands of Winchester
 [Schedules](/schedule)
 ---------
 
+[Volunteer](https://docs.google.com/forms/d/1FcnoGUu7IRZU20p_5BPwSsvqdbuwc5meh0-BwuKbSTc)
+-----------
+
+[Donate Here](/donations)
+-------------
+
+[More Info](/about)
+---------
+
 What is HHOW all about?
 ----------------------
 
